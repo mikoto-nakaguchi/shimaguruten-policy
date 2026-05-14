@@ -1,0 +1,1 @@
+# shimaguruten-policy
